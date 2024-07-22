@@ -1,2 +1,2 @@
 # training-git
-messaggio da thomas ciao
+messaggio da DAMIR!!!!!
